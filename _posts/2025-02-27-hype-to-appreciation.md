@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Old and New Games"
+title: "Video Games: From Hype to Appreciation"
 date: 2025-02-27
 background: '/img/bg-SLC.jpg'
 ---
