@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Old and New Games"
+date: 2025-02-27
+background: '/img/bg-SLC.jpg'
+---
+
+I have been playing video games for as long as I can remember. The first home console that I had was the Nintendo 64 and ever since I have been a "Nintendo kid". I have a lot of great memories with that console specifically with *Mario Kart 64*, *Super Mario 64*, *Blast Corps*, *Paper Mario*, *Kirby 64*, and *Tetrisphere*. I also had a Game Boy Advance where I enjoyed games like *Sonic Advance 2*, and *Super Mario Advance 2*. At this point in time I was a little kid and did not fully understand everything that was going on in the gaming world. I just enjoyed the video games that my parents chose and bought for me which I am grateful for. I was not aware of all of the new releases or following rumors about new consoles and new games, I just purely enjoyed games.
+
+Fast forward several years. The eras of the Nintendo DS and Gamecube have passed on by and the Wii era is about to end. I enjoyed all of them very much. The year is 2012 and I am loving my Aqua Blue Nintendo 3DS. I am a bit older now and a bit more plugged into what is going on in the gaming world online. I am following leaks and rumors of the Wii U, and any new games that are coming out for the Nintendo 3DS. At this point I have been getting a little spending money here and there which all I wanted to spend money on was video games. I was buying every Nintendo 3DS game that even slightly interested me. It was not a big deal back then considering I had nothing else to spend money on and Nintendo 3DS games back then were only $40. I was buying games on the days that released and when I got a new game it was not likely that I would go back and finish the other games that I had previously purchased and started playing. I always wanted to be playing what was the the most recent and "the best". This method introduced me to some great games that I otherwise would not have played like *Animal Crossing: New Leaf* and *Pokémon X* but in 2012 there was one game that planted an idea in my mind that I still think about: *Mario Tennis Open*.
+
+I remember we were about to go on a road trip and *Mario Tennis Open* was releasing that very same weekend. Naturally I was looking forward to going to my local Gamestop to get it and play it for the entire road trip. The first little bit of playing the game was fun because it was new and exciting to me, but that quickly wore off. The gameplay got to be really repetitive for me and I got bored quite quickly from it. As I was trying to play more and justify spending the money on it and being so excited for it, I remember thinking about how maybe not all games that are new are more exciting than the games that came before it. Given that it was a road trip weekend, I had a lot of time to think about this and try to squeeze out any enjoyment out of the game.
+
+Fast forward again to 2023. The eras of Nintendo 3DS and Wii U are done and the Nintendo Switch has been out for six years. I loved the Nintendo Switch and I still do. The flexibility of the console and the games that released for it were outstanding and lots of fun. With this console I was not buying as many games and I was playing through the games that I did buy to either completion or to the point of where I felt satisfied of calling it done. Once I got to this point in a game I would start my search for the next game that I wanted to play. In 2023 though I wanted to play some other games. Not games that are just now releasing but games that I did not get to or ones that I wanted to revisit for previous consoles. I pulled out my Wii U and Nintendo 3DS games and made a list of all the games that I wanted to play.
+
+The first game that I went back and played was *Mario and Luigi: Bowser's Inside Story* on the Nintendo 3DS. This game has been one that I wanted to play for a long time but never got around to it. It was a lot of fun and I did not feel like I was missing out on anything because I was playing a game that released several years ago. Then I also play *The Legend of Zelda: Twilight Princess HD* on the Wii U and had a blast with that. Since then I have been enjoying games on those consoles as well as the most recent console, a TrimUI Brick where I have been playing *Metroid Fusion* and *Pokémon Emerald Seaglass* which is a fan-made version of *Pokémon Emerald*.
+
+Getting older and having different experiences with video games has shaped what games I am interested in playing in a lot of ways. While the themes and genres are about the same, I do have a greater appreciation now for video games than when I was younger. New games can be great, but also there are a lot of older games that are just as good if not better that I am excited to check out.
+
+I am tracking the games that I am currently playing on [Backloggd](https://www.backloggd.com/u/Dgr8sambino/).
+
+See you around.
+
+-Sam
